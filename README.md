@@ -7,6 +7,7 @@ Lehigh University, Bethlehem, PA 									                           2017-presen
 
 
 WORK EXPERIENCE
+
 Selective Insurance, Branchville, NJ                                          Summer 2018
 
 Selective Insurance Group, Inc. is a primary holding company for 10 property-casualty insurance companies			         
@@ -29,6 +30,7 @@ o	Established secure trading and asset management communications processes
 ●	Digitized and organized all client files and data 
 
 COMMUNITY LEADERSHIP
+
 Red Oak Chamber Organization, Skillman, NJ 								                       2015-2017
 
 Co-founded youth service group that expands access to music education by donating funds to financially struggling schools.    Website: www.rocomusic.wordpress.com, Facebook page: https://www.facebook.com/groups/885819671452099/ 
