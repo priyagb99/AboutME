@@ -1,7 +1,10 @@
 
 PRIYA BHATNAGAR
+
 Education
+
 Lehigh University, Bethlehem, PA 									                           2017-present
+
 ●	Junior, graduation expected May 2021
 
 
