@@ -1,4 +1,3 @@
-# AboutME
 
 PRIYA BHATNAGAR
 Education
